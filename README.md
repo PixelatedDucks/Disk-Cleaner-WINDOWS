@@ -1,10 +1,10 @@
 Made by PixelatedDucks
 
-I made this just for a test to see how good of an app maker i am!
+I made this just for a test to see how good an app maker I am!
 
-Youtube: youtube.com/@pixelatedducks
+YouTube: youtube.com/@pixelatedducks
 
-I hope you all have more storage thanks for supporting me!
+I hope you all have more storage. Thanks for supporting me!
 
 
 -PixelatedDucks 
